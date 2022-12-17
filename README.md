@@ -1,0 +1,1 @@
+# screenshort_for_motonari
